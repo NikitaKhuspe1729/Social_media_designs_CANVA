@@ -1,5 +1,6 @@
 # Social_media_designs_INSTAGRAM
 
+# SK's training and placement center 
 ![4](https://github.com/NikitaKhuspe1729/Social_media_designs_INSTAGRAM/assets/125488086/cd65fee1-0f79-47a3-9b1f-1946c0b65cfb)
 ![3](https://github.com/NikitaKhuspe1729/Social_media_designs_INSTAGRAM/assets/125488086/cce724a2-37dd-4ae7-a4d6-09348bd7a574)
 ![2](https://github.com/NikitaKhuspe1729/Social_media_designs_INSTAGRAM/assets/125488086/8d1b7745-590a-4a81-9dda-9b7968a63c96)
