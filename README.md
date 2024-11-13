@@ -14,3 +14,8 @@
 ![congrats](https://github.com/NikitaKhuspe1729/Social_media_designs_INSTAGRAM/assets/125488086/0b050df0-11fa-4eb5-b163-35b02bd9a578)
 https://github.com/NikitaKhuspe1729/Social_media_designs_INSTAGRAM/assets/125488086/8623ee7a-9e0d-433e-8675-17d8093420d6
 https://github.com/NikitaKhuspe1729/Social_media_designs_INSTAGRAM/assets/125488086/153071df-9cfa-4754-98b0-e5a6c5634b2d
+
+# Projects
+![3](https://github.com/user-attachments/assets/acacfbd0-68df-43e0-aac9-36043f3eb413)
+![2](https://github.com/user-attachments/assets/1dd21bb8-0790-4690-aa47-4ef57a34fbf9)
+![1](https://github.com/user-attachments/assets/43588582-e403-4b5d-8300-a7e02ad1a905)
