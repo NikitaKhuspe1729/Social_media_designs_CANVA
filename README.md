@@ -22,3 +22,4 @@ https://github.com/NikitaKhuspe1729/Social_media_designs_INSTAGRAM/assets/125488
 ![3](https://github.com/user-attachments/assets/acacfbd0-68df-43e0-aac9-36043f3eb413)
 ![2](https://github.com/user-attachments/assets/1dd21bb8-0790-4690-aa47-4ef57a34fbf9)
 ![1](https://github.com/user-attachments/assets/43588582-e403-4b5d-8300-a7e02ad1a905)
+![Soul Societie For Organic Farming assignment](https://github.com/user-attachments/assets/158358d9-db03-4647-9bc7-5dae1cb9ef44)
