@@ -2,6 +2,8 @@
 # ITSA poster
 ![INFORMATION TECHNOLOGY](https://github.com/user-attachments/assets/3e0d39ef-e9a8-4ab0-8867-3572fa3cc9c1)
 
+# Festival
+![padwa story](https://github.com/user-attachments/assets/c7268ad5-6aeb-488f-b047-b65b99f22c8d)
 
 # SK's training and placement center 
 ![4](https://github.com/NikitaKhuspe1729/Social_media_designs_INSTAGRAM/assets/125488086/cd65fee1-0f79-47a3-9b1f-1946c0b65cfb)
