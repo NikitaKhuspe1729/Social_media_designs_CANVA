@@ -1,5 +1,10 @@
 # Social_media_designs_INSTAGRAM
 Created social media designs for instagram marketing. Some are created as a part of assignments.
+
+# Practice
+![green bite poster2](https://github.com/user-attachments/assets/f23dacb4-3d3a-4ba6-bcdd-c5cbae575ef7)
+
+
 # ITSA poster
 ![INFORMATION TECHNOLOGY](https://github.com/user-attachments/assets/3e0d39ef-e9a8-4ab0-8867-3572fa3cc9c1)
 
