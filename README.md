@@ -3,6 +3,7 @@ Created social media designs for instagram marketing. Some are created as a part
 
 # Practice
 ![green bite poster2](https://github.com/user-attachments/assets/f23dacb4-3d3a-4ba6-bcdd-c5cbae575ef7)
+![dehydrated food (1)](https://github.com/user-attachments/assets/7fb07fff-aed6-4122-a464-02e9e6afba92)
 
 
 # ITSA poster
